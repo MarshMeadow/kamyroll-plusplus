@@ -3,4 +3,4 @@ Kamyroll Reborn! Kamyroll is an anime streaming app offering the Crunchyroll cat
 
 Links will not be added..
 
-DM me for files..
+You need to be in the discord or telegram to have the apps..
